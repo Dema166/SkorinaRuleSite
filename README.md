@@ -1,1 +1,0 @@
-# SkorinaRuleSite.github.io
